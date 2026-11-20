@@ -1,4 +1,4 @@
-**Experience the difference of an "Elite" Vacation Rental Channel Manager, PMS and Website Provider**
+**Full control of your short-term rental without the full-time job**
 
 OwnerRez is an internationally recognized leader in the vacation rental industry for channel management, CRM, PM, accounting, messaging and websites. 
 
